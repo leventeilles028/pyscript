@@ -1,0 +1,1 @@
+[[# pyscript](https://leventeilles.pyscriptapps.com/adatbevitel/)https://leventeilles.pyscriptapps.com/adatbevitel/](https://leventeilles.pyscriptapps.com/adatbevitel/)https://leventeilles.pyscriptapps.com/adatbevitel/
